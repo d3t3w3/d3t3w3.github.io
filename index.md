@@ -8,3 +8,5 @@ James Joseph Parsons (born March 24, 1973) is an American actor and producer. Pa
 * finally found love in TBBT
 
 > Bazinga
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/Jim_Parsons_2016.jpg/444px-Jim_Parsons_2016.jpg">
