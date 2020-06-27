@@ -6,3 +6,5 @@ James Joseph Parsons (born March 24, 1973) is an American actor and producer. Pa
 * is eccentric in many ways
 * brilliant physicist
 * finally found love in TBBT
+
+> Bazinga
