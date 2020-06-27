@@ -9,4 +9,4 @@ James Joseph Parsons (born March 24, 1973) is an American actor and producer. Pa
 
 > Bazinga
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/Jim_Parsons_2016.jpg/444px-Jim_Parsons_2016.jpg">
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/Jim_Parsons_at_PaleyFest_2013.jpg/400px-Jim_Parsons_at_PaleyFest_2013.jpg">
